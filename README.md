@@ -1,1 +1,0 @@
-# Kest-lokaverkefni-2020
